@@ -1,4 +1,4 @@
-#  
+#  Melhor plants vs brainrots script é o melhor plants vs brainrots script com anti-banimento e coleta automática. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
